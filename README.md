@@ -1,8 +1,8 @@
 # mengzhan
-新萌站3.0最新地址(“主用”打不开请使用“备用”,2025年4月2后更新)
+新萌站3.0最新地址(“主用”打不开请使用“备用”,2025年4月13后更新)
 
-【主用网址】https://www.mengzhan18.xyz
-【备用网址】https://www.mengzhan18.vip
+【主用网址】https://www.mengzhan19.xyz
+【备用网址】https://www.mengzhan19.vip
 
 请牢记和保存好以下永久域名(当找不到家时请依次尝试用以下方式找到新地址发布页)
 

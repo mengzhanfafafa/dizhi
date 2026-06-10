@@ -20,7 +20,7 @@ https://github.com/mengzhanfafafa/dizhi
 mengzhanfafafa@gmail.com （速记：萌站发发发）
 
 --------------------------------------------------------------------------------
-🤗如果有求助或建议均可联系在线客服：https://www.mengzhan-kefu.xyz/kefu.html
+🤗如果有求助或建议均可联系在线客服：https://www.mengzhan-kefu.vip/kefu.html
 
 
 
